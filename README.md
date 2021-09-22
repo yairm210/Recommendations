@@ -31,4 +31,4 @@ Other
 - Planetes (ended) - Hard sci-fi about a cleanup crew for space junk
 - Bonnouji (ended) - Cutest romance manga about an office worker and a work-at-home with a house full of random stuff his brother sends him while travelling.
 - Pluto (ended) - I literally cried from this one. Urasawa pulls out all the feels for this robot murder mystery.
-
+- Train man (densha otoko) - romance that I can't seem to find anymore :/
